@@ -1,6 +1,6 @@
 Justin Dang
 
-One of the first things a class does is elect their class officers within the first week of classes. This decision may seem arbitrary, misguided, and ill-timed. In once sense, this might be the case:
+Within the first week of school, your class will be electing 4 officers. This decision may seem a bit arbitrary, rushed, and ill-timed. In one sense, it's true:
 
 - You're electing classmates who you've known for less than a few weeks.
 - No one really understands the positions these classmates will be elected to.
@@ -21,12 +21,12 @@ You'll no doubt get a small talk and some handouts explaining what each position
 ### The President
 The President is the head of the board and it responsible for acting as the primary representative of your class. This means:
 
-- Professors typically communicate with the class through the class president. If a class wide email goes out and a consensus response is needed, your class president will deliver it.
+- Professors typically communicate with the class through the president. If a class wide email goes out and a consensus response is needed, your president will deliver it.
 - Class wide decisions will be delivered though your president, mostly through scheduling. 
 - They attend the governing OOSA (Oklahoma Optometry Student Association) and AOSA (American Optometry Student Association) board meetings and will give a report on behalf of your class.
 - And perhaps most importantly, they will be responsible for handling your class's testing and finals schedule. 
 
-As you progress in school, you'll quickly find out that the examination and quizzing cycle is very rigorous. There will be many of them. **That being said, teachers are generally quite flexible on when they will administer tests and quizzes.** This means that the class has some say not necessarily *if* they'll take these tests but *when*. The president will typically be responsible for taking a poll or deciding which quizzes and tests get scheduled when. 
+As you progress in school, you'll quickly find out that the examination and quizzing cycle is very rigorous. There will be many of them. **That being said, teachers are generally quite flexible on when they will administer tests and quizzes.** This means that the class has some say not necessarily *if* they'll take these tests but *when*. The president will usually be responsible for taking a poll or deciding which quizzes and tests get scheduled when. 
 
 Choosing a good president can be hard if you don't know your fellow classmates very well yet. But in general, you'll want to look for a person who:
 
@@ -34,7 +34,7 @@ Choosing a good president can be hard if you don't know your fellow classmates v
 - Is proactive rather than sitting back and letting these come to them
 - Is decisive in moments that don't require a vote
 - Values opinions and consensus
-- Sleeps okay at night with criticism and unkind words at times
+- Sleeps okay at night when dealing with the occasional criticism and unkind word
 
 The president will be doing a lot of the legwork for the class's quality of life. They get a lot of emails and messages! Read more about the experiences of Class of 2028's president Cam McClure. 
 
