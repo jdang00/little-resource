@@ -1,3 +1,4 @@
+Justin Dang
 ## Introduction
 
 Before I started optometry school, I had a very clear picture in my head of what it would be like.

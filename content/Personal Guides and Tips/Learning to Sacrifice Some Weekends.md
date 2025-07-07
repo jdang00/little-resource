@@ -1,3 +1,4 @@
+Justin Dang
 ## Introduction
 
 One of the biggest mindset shifts in optometry school isn’t about study habits -- it’s about time.

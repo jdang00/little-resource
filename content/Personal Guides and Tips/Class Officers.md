@@ -1,5 +1,6 @@
 Justin Dang
 
+## Introduction
 Within the first week of school, your class will be electing 4 officers. This decision may seem a bit arbitrary, rushed, and ill-timed. In one sense, it's true:
 
 - You're electing classmates who you've known for less than a few weeks.
